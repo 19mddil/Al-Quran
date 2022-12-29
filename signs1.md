@@ -1,0 +1,13 @@
+# Al Baqarah
+- O humanity! Worship your Lord, Who created you and those before you, so that you may become mindful 2:21
+- And He leaves none to stray except the rebellious— 2:26
+- those 
+  - who violate Allah’s covenant after it has been affirmed,
+  - break whatever ˹ties˺ Allah has ordered to be maintained, 
+  - and spread corruption in the land. It is they who are the ˹true˺ losers. 2:27
+- How can you deny Allah? You were lifeless and He gave you life, then He will cause you to die and again bring you to life, and then to Him you will ˹all˺ be returned. 2:28
+- He is the One Who created everything in the earth for syou. Then He turned towards the heaven, forming it into seven heavens. And He has ˹perfect˺ knowledge of all things. 2:29
+- Allah said, “O Adam! Inform them of their names.” Then when Adam did, Allah said, “Did I not tell you that I know the secrets of the heavens and the earth, and I know what you reveal and what you conceal?” 2:33
+- Do you preach righteousness and fail to practice it yourselves, although you read the Scripture? Do you not understand? 2:44
+- And seek help through patience and prayer. 2:45
+- নাকি তোমরা চাও তোমাদের রাসূলকে প্রশ্ন করতে, যেমন পূর্বে মূসাকে প্রশ্ন করা হয়েছিল? আর যে ঈমানকে কুফরে পরিবর্তন করবে, সে নিশ্চয় সোজা পথবিচ্যুত হল। 2:108(Last)
