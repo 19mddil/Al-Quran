@@ -1,0 +1,16 @@
+- Allah will spare you their evil. For He is the All-Hearing, All-Knowing. 2:127
+- Who is more knowledgeable: you or Allah?. 2:140
+- Allah is never unaware of what you do. 2:140
+- He guides whoever He wills to the Straight Path.2:142
+- Surely Allah is Ever Gracious and Most Merciful to humanity.2:143
+- ˹This is˺ the truth from your Lord, so do not ever be one of those who doubt.2:147
+- Wherever you are, Allah will bring you all together. Surely Allah is Most Capable of everything.2:148
+- And Allah is never unaware of what you do.2:149
+- Do not fear them; fear Me, so that I may perfect My favour upon you and so you may be guided.2:150
+- remember Me; I will remember you. And thank Me, and never be ungrateful.2:152 
+- O believers! Seek comfort in patience and prayer. Allah is truly with those who are patient.2:153
+- We will certainly test you with a touch of fear and famine and loss of property, life, and crops. Give good news to those who patiently endure— 2:155
+- who, when faced with a disaster, say, “Surely to Allah we belong and to Him we will ˹all˺ return.” 2:156
+- They are the ones who will receive Allah’s blessings and mercy. And it is they who are ˹rightly˺ guided.2:157
+- As for those who repent, mend their ways, and let the truth be known, they are the ones to whom I will turn ˹in forgiveness˺, for I am the Accepter of Repentance, Most Merciful.2:160
+- Your God is ˹only˺ One God. There is no god ˹worthy of worship˺ except Him—the Most Compassionate, Most Merciful.2:163(last)
